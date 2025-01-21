@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Angelina!  
+## Hello! 👋 
 
 ### 🕵️‍♀️ **Data Detective | Insight Seeker | Problem Solver**  
 
